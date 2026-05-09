@@ -1,1 +1,1 @@
-# El5-energo - https://3dooo.github.io/el5-energo/about.html
+# El5-energo - https://3dooo.github.io/el5-energo/promo-main.html
